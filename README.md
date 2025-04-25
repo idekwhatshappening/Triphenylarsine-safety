@@ -1,1 +1,1 @@
-https://github.com/pankoza2-pl/Triphenylarsine.exe/blob/main/Triphenylarsine.zip
+https://github.com/idekwhatshappening/Triphenylarsine-safety/blob/main/Triphenylarsine-Safety.exe
